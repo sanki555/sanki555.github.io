@@ -1,1 +1,0 @@
-# sanki555.github.io
